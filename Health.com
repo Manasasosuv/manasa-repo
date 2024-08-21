@@ -9,5 +9,4 @@ Happy
 Life Happy Happy Happy
 
 
-Superooooooooooooooooooooooooooooooooooooooooo
 HAPPY FOR LIFE
